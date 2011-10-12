@@ -26,7 +26,7 @@ Ingredients
 * 1+1/2 Tbsp. ketchup OR sweet tomato puree
 * 1 can thick coconut milk
 * 2-3 Tbsp. fish sauce
-* optional: 1/2 tsp. sugar
+* optional: 1/2 tsp. sugar (add more to sweeten)
 * 2-3 Tbsp. vegetable oil for stir-frying
 * Optional: 1-2 whole kaffir lime leaves (available at Asian food stores)
 
